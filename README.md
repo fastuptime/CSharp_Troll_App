@@ -11,7 +11,6 @@
 ![image](https://user-images.githubusercontent.com/63351166/205460078-654f3a9c-975d-4c6c-9ee6-f9506bf47070.png)
 ![image](https://user-images.githubusercontent.com/63351166/205460085-6e103341-ecd5-48ab-915c-a29e065c074c.png)
 
-undefined
 ---
 - ✨ [Destek İçin](https://fastuptime.com) <br>
 - 💕 [Discord](https://fastuptime.com/discord)<br>
