@@ -4,6 +4,7 @@
 - Eğlence Amaçlı Yapılmıştır.
 - Görev Yöneticisinden Kapatılamaz Bilgisayarınızı Yeniden Başlatın.
 - [Exe İndirme Linki](https://dosya.co/lsmpo2ixwqhc/TrollApp.exe.html)
+- [Tanıtım Videosu](https://youtu.be/NqZ244qOa3Q)
 
 # Resimler
 
